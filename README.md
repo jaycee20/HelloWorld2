@@ -1,3 +1,4 @@
+![headshot](pot2-Vsmall.jpg)
 # A little insight into Jay Cee
 Hi Everyone! My name is Jay Cee and I am not the author of any books yet, but I have written many manuals and system documentations. This README will give you a bit of information about me!
 
