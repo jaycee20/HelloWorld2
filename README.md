@@ -7,3 +7,7 @@ I really love working with technology. Specifically, I love being in a position 
 
 ## My Hobbies
 One of my favourite things to do is go to Disneyland - even if i didn't go on any rides, just walking around the park and feeling the magic is enough for me :smile:
+### Some more stuff
+
+## My Favourite Books
+I absolutely love the Harry Potter books, they are so engaging and rich. What is even better is the community that has formed around it. Lately, I have been listening to podcasts that do deep dives into the entire Harry Potter universe and it is so much fun.
